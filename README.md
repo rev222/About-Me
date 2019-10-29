@@ -6,10 +6,12 @@ Montclair High School, Montclair, NJ
 Graduated June 2018 Cumulative GPA: 4.2 National Honors Society
 Lehigh University, Bethlehem, PA
 College of Business and Economics Expected Graduation: May 2022 Patriot League Academic Honor Roll
+
 Work Experience
 Nanny, Montclair, NJ
 § Provided childcare for a family of 2 children, every weekday for two years
 § Developed and provided time management skills, patience, flexibility, and resilience § Assisted in problem solving, meal prep, and transportation
+
 Leadership
 Team Captain Varsity Soccer Team, Montclair, NJ
 § Unified, lead, and supported my teammates on and off the field
@@ -19,6 +21,7 @@ Team Captain Match Fit Academy, Denville, NJ
 those surrounding
 § Orchestrated strong work ethic and perseverance in order to meet my own and my
 team’s goals
+
 Activities
 NCAA Division I Women’s Soccer, Lehigh University, Bethlehem, PA
 § Acquired team work, mental strength, responsibility, commitment, and
